@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Einstine-O, I'm 16 years old and I live in Belgium
+- 👋 Hi, I’m @Einstine-O, I'm 19 years old and I live in Belgium
 - 👀 I’m interested in informatic sciences, medicine and cinema
-- 🌱 I’m currently learning hard sciences in Belgium
+- 🌱 I’m currently learning economics and management in Belgium
 - 💞️ I’m looking to collaborate on (...)
 - 📫 Reach me at okoaeinstine@gmail.com
 
